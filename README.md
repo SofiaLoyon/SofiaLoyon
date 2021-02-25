@@ -1,4 +1,4 @@
-![](universe.jpg)
+![](https://github.com/SofiaLoyon/SofiaLoyon/blob/main/ElQ0vWyUwAAO4ri.jpg)
 ### HI THERE!✌
 
 ### Here you can find some info about me:
