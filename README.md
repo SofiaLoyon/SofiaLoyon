@@ -1,4 +1,4 @@
-![](https://github.com/SofiaLoyon/SofiaLoyon/blob/main/ElQ0vWyUwAAO4ri.jpg)
+![](metal.jpg)
 ### HI THERE!✌
 
 ### Here you can find some info about me:
